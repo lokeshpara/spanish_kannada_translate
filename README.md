@@ -1,0 +1,1 @@
+# spanish_kannada_translate
